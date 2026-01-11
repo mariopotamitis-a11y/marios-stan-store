@@ -1,1 +1,0 @@
-# marios-stan-store
